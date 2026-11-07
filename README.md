@@ -1,0 +1,1 @@
+https://www.figma.com/proto/KFA3tyxqx0Dm0zB9PE8rSS/SabayMart-By-Seyha?node-id=3-30965&p=f&t=3lNdmfhXze23Ktfc-1&scaling=scale-down&content-scaling=responsive&page-id=0%3A1
